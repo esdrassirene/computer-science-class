@@ -17,3 +17,6 @@
 # 9/12/2023 i was working on my personal financial literacy assigments 
 # 9/13/2023 i completed my math portion of the edready program 
 # 9/14/2023 today i started writing my essay for the edready program 
+# 9/18/2023 today i completed the finalpart of my english modules for my edready class 
+# 9/19/2023 i have completed the second portion of my math modules in edready 
+# 9/20/2023 i started to write my essay for my english class 
