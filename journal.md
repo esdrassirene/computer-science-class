@@ -20,3 +20,10 @@
 # 9/18/2023 today i completed the finalpart of my english modules for my edready class 
 # 9/19/2023 i have completed the second portion of my math modules in edready 
 # 9/20/2023 i started to write my essay for my english class 
+# 9/21/23   i was writing an essay 
+# 9/22/23 im still writing my essay 
+# 9/25/23 i completed one of my code hs assigments 
+# 9/26/23 i was completing my math homework 
+# 9/27/23 i have completed my essay 
+# 9/30/23 i have completed another code assigment 
+# 9/31/23 i completed one of my math assigments 
